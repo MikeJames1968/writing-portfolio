@@ -8,8 +8,6 @@ Britain has always been a haven of restrained, understated, cool brands and prod
 
 It’s hard to define “cool”. Ask anyone and they will tell you they can and proceed to rattle off a list of things they believe are cool. It’s mostly a personal thing: Look at the arguments over where cars go on the cool wall on Top Gear. But everyone agrees Aston is cool. It’s their USP, their big advantage over rivals. Even the tall curly-headed right wing shouter and his annoying lap-dog agree on that.
 
-## The Decline of Tasteless Marketing
-
 But something has started to go wrong at Aston: 
 * “Emotional Control Unit”? (Gag) 
 * “Power Beauty Soul”? (Retch)
@@ -21,8 +19,6 @@ Perhaps the management running the company just don’t get the idea of British 
 
 Or are the management simply going along with the marketing department’s ideas on how to “leverage the brand”? Now, I shouldn’t rubbish Marketing types, despite the fact they are responsible for most of the evils in modern society. My sister works in marketing and buys me nice birthday and Christmas presents. But the bunch at Aston need a bit of a shoeing, frankly.
 
-## A Message to Aston Martin
-
 Here’s a message to Aston Martin: It is not a brand to be exploited, it is a British institution and you are in danger of ruining it. 
 
 * **The Key**: The “Emotional Control Unit” should be a KEY.
@@ -31,13 +27,10 @@ Here’s a message to Aston Martin: It is not a brand to be exploited, it is a B
 
 ALL you need to do to market Aston Martin is to build beautiful, understated cars, be competitive with your market rivals and get your next car into the next Bond movie. At least as long as Bond remains cool.
 
-## Worrying Styling Trends
-
 There are other worrying signs that this last bastion of British cool is melting. Astons have always been (mostly) beautiful cars. I saw my first DBS on the road in St Johns Wood recently: It looked like someone had put some Max Power skirts on a DB9 then attacked it with a giant Samurai sword. A return to the styling of the 80s Vantage is not the way to go. 
 
 > **A Note on the Competition:** Mind you, it’s a nicer looking car than the Enzo, which I also saw for the first time that day. WHAT a munter! At least Ferrari has realised it hasn’t made a good looking car since the 355 and 456 and given us the new 458 Italia – about time too.
 
-## The Ultimate Insult
 
 And the ultimate insult? – this is where it gets really bad – is **WHO** is driving them nowadays. Top Gear is hardly the TV equivalent of “The Chap” magazine, but even it uses “a footballer drives it” as the top insult to give a car. And guess who drives Astons these days? Step forward Wayne Rooney, Stephen Gerrard, Frank Lampard…
 
