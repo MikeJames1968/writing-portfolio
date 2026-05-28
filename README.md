@@ -1,4 +1,4 @@
-# writing-portfolio
+# Writing Portfolio
 
 Repository containing selected long-form and analytical writing material, including AI-assisted editorial analysis and manuscript-development summaries generated using ProWritingAid.
 
